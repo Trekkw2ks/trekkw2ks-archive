@@ -1,0 +1,8 @@
+---
+title: "nl0vmc7bb271f268a4747a9b0d4d93029f598"
+date: 2023-01-01
+draft: false
+tags: ["zoho-import"]
+---
+
+Weekend Crypto 8.25.23Hola GnGs &#128406;&#127998;,&nbsp;I'm Trekkw2ks. If you're new to my segment #WeekendCrypto, thanks for taking the time to tap in. The basic idea is I cover events related to crypto that happen over the weekend, between Friday and Sunday. This isn't about price talk but giving context to events happening in the space. For the regular #warriors much thanks for continuing to watch the show.For those interested in following a story, here are the links:&nbsp;https://decrypt.co/153942/oman-crypto-investments-halal-haram-sharia-lawhttps://dailyhodl.com/2023/08/27/arthur-hayes-says-larry-fink-and-blackrock-coming-for-bitcoin-and-crypto-industry-heres-how/https://coingape.com/modi-champions-global-tech-rules/https://news.bitcoin.com/glassnode-and-ark-invest-introduce-cointime-economics-a-new-model-to-measure-bitcoins-value/https://dailyhodl.com/2023/08/25/brics-member-india-ditches-us-dollar-purchases-1000000-barrels-of-oil-with-rupees-for-first-time-ever-report/Social Media:Just put "Trekkw2ks" in any search engine. All my social comes up.And for  Metaverses: The Other Side check us on Twitter @BuildRDAO. Replays on Saturdays at 12ish.#BRICS #CointimeEconomics #CBDC #India #OilMarket #ArkInvest #ArthurHayes #Trekkw2ksPLEASE LIKE, COMMENT AND SUBSCRIBE!!!**Remember, I'm just some bald headed guy on the internet. I'm not a CPA, Financial Advisor, or lawyer. None of what is said in this show should be taken as legal or financial advice, for entertainment purposes only. Always do your own due diligence.**

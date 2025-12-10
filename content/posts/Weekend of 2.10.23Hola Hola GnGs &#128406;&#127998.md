@@ -1,0 +1,8 @@
+---
+title: "donfdfe86b3160ef44910b5ea0124ed260ca0"
+date: 2023-01-01
+draft: false
+tags: ["zoho-import"]
+---
+
+Weekend of 2.10.23Hola Hola GnGs &#128406;&#127998;,I'm Trekkw2ks. If you're new to my segment #WeekendCrypto, thanks for taking the time to tap in. The basic idea is I cover crypto news that happens over the weekend, between Friday and Sunday. For the regular #warriors much thanks for continuing to watch the show.For those interested in following up on the stories covered, below are the links.&nbsp;&nbsp;Stories and links:linkhttps://www.theblock.co/post/210665/security-firm-unciphered-hacked-into-popular-hardware-wallet-onekey?utm_source=cryptopanic&amp;utm_medium=rsshttps://finbold.com/cardano-founder-c-hoskinson-proposes-contingent-staking-to-meet-regulatory-needs/https://www.theblock.co/post/210137/binance-deploys-zk-snarks-on-proof-of-reserves-system?utm_source=cryptopanic&amp;utm_medium=rsshttps://bitcoinist.com/russia-to-launch-12-3-million-crypto-farm/https://www.theblock.co/post/210837/brazils-oldest-bank-says-you-can-now-pay-your-taxes-with-crypto?utm_source=cryptopanic&amp;utm_medium=rssSocial Media:Just put "Trekkw2ks" in any search engine. All my social comes up.#London #Cardano #FBI #Doritos #Mana #Ethereum #Trekkw2ksPLEASE LIKE, COMMENT AND SUBSCRIBE!!!**Remember, I'm just some bald headed guy on the internet. I'm not a CPA, Financial Advisor, or lawyer. None of what is said in this show should be taken as legal or financial advice, for entertainment purposes only. Always do your own due diligence.**https://app.restream.io/new-event-invitation/emVNMk0zWKV-VQgDt0HNumjT83ogoRE/email

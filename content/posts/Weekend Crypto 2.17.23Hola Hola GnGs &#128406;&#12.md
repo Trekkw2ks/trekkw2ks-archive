@@ -1,0 +1,8 @@
+---
+title: "on7drf26ae5786c834a41ade7bb8cc5d8b67b"
+date: 2023-01-01
+draft: false
+tags: ["zoho-import"]
+---
+
+Weekend Crypto 2.17.23Hola Hola GnGs &#128406;&#127998;,I'm Trekkw2ks. If you're new to my segment #WeekendCrypto, thanks for taking the time to tap in. The basic idea is I cover crypto news that happens over the weekend, between Friday and Sunday. For the regular #warriors much thanks for continuing to watch the show.For those interested in following up on the stories covered, below are the links.&nbsp;&nbsp;Stories and links:linkhttps://ambcrypto.com/helium-to-migrate-to-solana-on-this-date-heres-how-hnt-reacted/https://decrypt.co/121638/opensea-drops-fees-royalty-protections-blur-riseshttps://www.theblock.co/post/212966/platypusdefi-salvages-2-4-million-in-hacked-funds-with-blocksecs-help?utm_source=cryptopanic&amp;utm_medium=rsshttps://decrypt.co/121679/yuga-labs-replacing-bored-ape-kennel-club-logo-copied-kids-drawing-guideSocial Media:Just put "Trekkw2ks" in any search engine. All my social comes up.#India #SEC #FBI #CaitlinLong #Hack #YugaLabs #BAKC #Trekkw2ksPLEASE LIKE, COMMENT AND SUBSCRIBE!!!**Remember, I'm just some bald headed guy on the internet. I'm not a CPA, Financial Advisor, or lawyer. None of what is said in this show should be taken as legal or financial advice, for entertainment purposes only. Always do your own due diligence.**https://app.restream.io/new-event-invitation/emVNMk0zWHoe1xQxJEn6ofZLLXs9BDg/email​

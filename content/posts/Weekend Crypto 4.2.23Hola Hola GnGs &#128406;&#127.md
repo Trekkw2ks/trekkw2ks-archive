@@ -1,0 +1,8 @@
+---
+title: "i7ghcda331bc930d1425b86affd2e753475be"
+date: 2023-01-01
+draft: false
+tags: ["zoho-import"]
+---
+
+Weekend Crypto 4.2.23Hola Hola GnGs &#128406;&#127998;,I'm Trekkw2ks. If you're new to my segment #WeekendCrypto, thanks for taking the time to tap in. The basic idea is I cover crypto news that happens over the weekend, between Friday and Sunday. For the regular #warriors much thanks for continuing to watch the show.For those interested in following a story, here are the links:linkhttps://bitcoinist.com/bitcoin-up-for-grabs-on-the-moon/https://u.today/kokomo-finance-steals-15-million-of-users-funds-doing-contract-trick-scam-alerthttps://cointelegraph.com/news/uniswap-v3-code-free-to-fork-as-bsl-expireshttps://cointelegraph.com/news/former-activision-blizzard-executive-joins-yuga-labs-as-ceohttps://cryptonews.com/news/crypto-exchange-bittrex-pulls-plug-us-operations-amid-challenging-regulatory-environment-heres-latest.htmhttps://cointelegraph.com/news/central-african-republic-s-sango-project-announces-delay-of-token-listinghttps://finbold.com/space-force-major-proposes-bitcoin-mining-for-pentagon-defense-strategy/Social Media:Just put "Trekkw2ks" in any search engine. All my social comes up.#CZ #Bitcoin #SpaceForce #YugaLabs #Uniswape #SpaceX #Bittrex #hack #Trekkw2ksPLEASE LIKE, COMMENT AND SUBSCRIBE!!!**Remember, I'm just some bald headed guy on the internet. I'm not a CPA, Financial Advisor, or lawyer. None of what is said in this show should be taken as legal or financial advice, for entertainment purposes only. Always do your own due diligence.**

@@ -1,0 +1,8 @@
+---
+title: "5lz0q4861acd596d0448d81b446231c08985f"
+date: 2023-01-01
+draft: false
+tags: ["zoho-import"]
+---
+
+9-16-2020Wednesday Rant: USERRA After October&nbsp;Hola Hola G&amp;Gs,&nbsp;Today's rant is based on a #QualitativeObservation from earlier in the week. I don't remember what got me to ask the question but it's something I've been put out to others.In 1994 Bill Clinton signed a bill called #USERRA. It basically works as a job place holder for #soldiers (#reservists and #nationalguard) when called to active duty.So here is coming delimma, I see starting around the #holidays, IMO.&nbsp;Most folks don't know this, but a few thousand soldiers return home a month from deployments. And a sizable number are from the Reserves and National Guard. Part of the deal for companies receiving #PPP/#EDIL was being maintain employee numbers until Sept/Oct. If they made it, then they would be cleared of paying back the money. Take a while guess on what news reports have been coming out, over the last few weeks about companies announcing #layoffs and closings.Remember what USERRA is suppose to do. But how does it help soldier coming back if:1. The company is closed by the time they get back?2. The company down sizes right after they come back?3. Companies to keep the job you have to move to a whole new city or state?Those are just some top of the head examples.I wonder who else is thinking about this?If you know someone in the service, you may want to bring this up to them, JMT.#hhimtrekk #wednesdayrant #realtalk #armylife #justthinking #ThinkersnDoers&nbsp; #Trekkw2Ks #2020aintready #PoverB&nbsp;

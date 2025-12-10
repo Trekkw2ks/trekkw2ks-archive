@@ -1,0 +1,8 @@
+---
+title: "c1u1r12ef8494564f4c6c8d904c6e4ce2a968"
+date: 2023-01-01
+draft: false
+tags: ["zoho-import"]
+---
+
+FL van TripHola Hola GnGs &#128406;&#127998;,So about 800 miles later, 2 stops at the houses of cousins, a couple hundred to fill up a 33 gallon tank, and I've finally made it.Where you ask?The Gulf side of Florida. Ever since my mom moved here I've wanted to seat on the side of the road and just watch the sea. Not sure why but I do like these scenes. Not sure if it has to do with my sign.As I sit here written this out, it's funny (not haha funny) to think about how many major life events have involved large bodies of water. But those stories are for one on one convoys over good food n &#127863;.As I breathe the salty air and ponder the word #abundance and its meaning in my life. I also think about the DC's recent strike against the crypto space and the ability to practice financial privacy. It's frustrates me to see how many "leaders" in the space toe the line of fighting criminal activities, namely terrorism. All while knowing that crypto could never replace the USD position on that.But I digress. IMO, the US has now started the game of wack amole by going after #TornadoCash. And the neither land arresting that dev isn't stopping anything either.I'd argue #CapitalFlight controls are being implementedindirectly and direct on the citizens of various countries. But as usual, most people are too distracted to see how are understand why.

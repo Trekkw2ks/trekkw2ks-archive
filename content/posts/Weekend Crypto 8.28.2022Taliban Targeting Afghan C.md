@@ -1,0 +1,8 @@
+---
+title: "lq101121b8828e72d4c17b3652ad690d5311c"
+date: 2023-01-01
+draft: false
+tags: ["zoho-import"]
+---
+
+Weekend Crypto 8.28.2022Taliban Targeting Afghan Crypto UserslinkAva Labs Dismisses "Conspiracy" Alleging Avalanche Paid Lawyers to Sue Competitorshttps://cryptobriefing.com/ava-labs-dismisses-conspiracy-alleging-avalanche-paid-lawyers-sue-competitors/Ethiopian Crypto Providers Will Now Need To Register With CyberSecurity Agencyhttps://bitcoinist.com/ethiopian-crypto-register-cybersecurity-agency/New Competitor Carves Away at OpenSea&rsquo;s Non-Fungible Token (NFT) Marketplace Supremacyhttps://dailyhodl.com/2022/08/27/new-competitor-carves-away-at-openseas-non-fungible-token-nft-marketplace-supremacy/CoinSwitch Kuber is 'fully cooperating' with India's Enforcement Directorate, CEO sayshttps://www.theblock.co/post/166135/coinswitch-kuber-is-fully-cooperating-with-indias-enforcement-directorate-ceo-says?utm_source=cryptopanic&amp;utm_medium=rssXRP-Supporting Lawyer Blasts Former SEC Chair Jay Clayton for Lack of Clarity on Crypto Regulationhttps://dailyhodl.com/2022/08/28/xrp-supporting-lawyer-blasts-former-sec-chair-jay-clayton-for-lack-of-clarity-on-crypto-regulation/Coinsilium CEO deems CBDCs a &lsquo;small niche&rsquo; vs Bitcoin, other cryptocurrencieshttps://cryptoslate.com/coinsillium-ceo-deems-cbdcs-a-small-niche-vs-bitcoin-other-cryptocurrencies/Compound v3 &ldquo;Comet&rdquo; launched with support for single borrowing modelhttps://cryptoslate.com/compound-v3-comet-launched-with-support-for-single-borrowing-model/

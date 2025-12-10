@@ -1,0 +1,8 @@
+---
+title: "ycr8dcae700da82d44944aa7588dfdab918cf"
+date: 2023-01-01
+draft: false
+tags: ["zoho-import"]
+---
+
+Weekend Crypto 4.21.2023Hola Hola GnGs &#128406;&#127998;,I'm Trekkw2ks. If you're new to my segment #WeekendCrypto, thanks for taking the time to tap in. The basic idea is I cover crypto news that happens over the weekend, between Friday and Sunday. For the regular #warriors much thanks for continuing to watch the show.For those interested in following a story, here are the links:linkhttps://beincrypto.com/public-sector-leads-transition-to-digital-yuan-wage-payments/https://bitcoinist.com/trust-wallet-announces-170000-loss-vulnerability/https://finbold.com/solana-rallies-after-networks-carbon-emissions-tracker-launch/https://cryptoslate.com/zero-knowledge-proofs-vs-cbdcs-the-fight-for-privacy-amid-central-banks-bid-for-control/https://www.cryptoglobe.com/latest/2023/04/eu-tightens-grip-on-crypto-self-hosted-wallets-face-new-rules-for-e1000-transfers/https://beincrypto.com/binance-ends-russia-account-limits/https://finbold.com/telegram-wallet-users-can-now-buy-withdraw-and-exchange-bitcoin/Social Media:Just put "Trekkw2ks" in any search engine. All my social comes up.#Telegram #Bitcoin #Binance # #Zimbabwe #DigitalYuan #TurstWallet #Solana #CarbonCredits #ZeroKnowledgeProof&nbsp; #Trekkw2ksPLEASE LIKE, COMMENT AND SUBSCRIBE!!!**Remember, I'm just some bald headed guy on the internet. I'm not a CPA, Financial Advisor, or lawyer. None of what is said in this show should be taken as legal or financial advice, for entertainment purposes only. Always do your own due diligence.**

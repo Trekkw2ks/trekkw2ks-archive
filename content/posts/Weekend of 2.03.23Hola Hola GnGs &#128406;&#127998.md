@@ -1,0 +1,8 @@
+---
+title: "la5l881b827fcccbb42288bdb5726e93cbc41"
+date: 2023-01-01
+draft: false
+tags: ["zoho-import"]
+---
+
+Weekend of 2.03.23Hola Hola GnGs &#128406;&#127998;,I'm Trekkw2ks. If you're new to my segment #WeekendCrypto, thanks for taking the time to tap in. The basic idea is I cover crypto news that happens over the weekend, between Friday and Sunday. For the regular #warriors much thanks for continuing to watch the show.For those interested in following up on the stories covered, below are the links.&nbsp;&nbsp;Stories and links:linkhttps://u.today/doritos-chips-producer-comes-to-polygon-matic-heres-howhttps://www.theblock.co/post/208470/ethereum-developers-to-open-testing-of-shanghai-capella-upgrade-on-feb-7?utm_source=cryptopanic&amp;utm_medium=rsshttps://finbold.com/cardano-reaches-5000-smart-contracts-on-its-network/https://beincrypto.com/fbi-zachxbt-seizure-crypto-assets/https://finbold.com/luxury-rehab-centers-popping-up-offering-crypto-addiction-treatment/Social Media:Just put "Trekkw2ks" in any search engine. All my social comes up.#London #Cardano #FBI #Doritos #Mana #Ethereum #Trekkw2ksPLEASE LIKE, COMMENT AND SUBSCRIBE!!!**Remember, I'm just some bald headed guy on the internet. I'm not a CPA, Financial Advisor, or lawyer. None of what is said in this show should be taken as legal or financial advice, for entertainment purposes only. Always do your own due diligence.**https://app.restream.io/new-event-invitation/emVNMk0zWCBs9YK0MkbPrgg2q4zEm6s/email

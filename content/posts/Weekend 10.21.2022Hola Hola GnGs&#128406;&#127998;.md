@@ -1,0 +1,8 @@
+---
+title: "o96cl8c81ad1994a04072aa510245ba3d608c"
+date: 2023-01-01
+draft: false
+tags: ["zoho-import"]
+---
+
+Weekend 10.21.2022Hola Hola GnGs&#128406;&#127998;,I'm Trekkw2ks. If you're new to my segment #WeekendCrypto, thanks for taking the time to tap in. The basic idea is I cover crypto news that happens over the weekend, between Friday and Sunday. For the regular #warriors much thanks for continuing to watch the show.For those interested in following up on the stories covered, below are the links. &nbsp;Stories and links:Change of Heart: Kraken Closes Accounts for all Russian UserslinkCardano's (ADA) First Telemedicine App Goes Livehttps://u.today/cardanos-ada-first-telemedicine-app-goes-liveExpert Cryptographer and XRP Ledger (XRPL) Legend Nik Bougalis is Leaving Ripplehttps://www.cryptoglobe.com/latest/2022/10/expert-cryptographer-and-xrp-ledger-xrpl-legend-nik-bougalis-is-leaving-ripple/SHIB, BONE, And LEASH Payments Now Available For Amazon And Netflixhttps://bitcoinist.com/shib-payments-for-amazon-and-netflix/UK seeks to introduce measures to regulate crypto ads and ban unauthorized providershttps://finbold.com/uk-seeks-to-introduce-measures-to-regulate-crypto-ads-and-ban-unauthorized-providers/Hacker drains $300,000 from Olympus DAO on Bond Protocolhttps://www.theblock.co/post/178927/hacker-drains-olympus-dao?utm_source=cryptopanic&amp;utm_medium=rssSocial Media:Just put Trekkw2ks in any search engine. All my social comes up.PLEASE LIKE, COMMENT AND  SUBSCRIBE!!!**Remember, I'm just some bald headed guy on the internet. I'm not a CPA, Financial Advisor, or lawyer. None of what is said in this show should be taken as legal or financial advice, for entertainment purposes only. Always do your own due diligence.**

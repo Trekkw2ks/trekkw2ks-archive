@@ -1,0 +1,8 @@
+---
+title: "30yqsaf755052480346c2b3e84c1b0a01a3b2"
+date: 2023-01-01
+draft: false
+tags: ["zoho-import"]
+---
+
+Proposal: Guap CoinThe following propsoal is directed to the attention of the Guap Coin Foundation.My name is Trekk. I host the podcast Trekken Cryptos 2 Connect. The podcast has been going for over a year now. Unlike most shows, this podcast has two seperate segments. They are the Every Day&nbsp; People and Conversations With, and can be found on several podcast platform.The goal of this proposal is to form partnership around a new segment created for the podcast entitled New Wave (title still in work).&nbsp;The basic concept is to share the stories of the new people coming into the blockchain/crypto space in 2020 and going forward. Stories would not just be a local to the United State but would be global in scale considering the nature of the space.&nbsp;In the partnership the foundation would indirectly fund the podcast by donating a node(s). Transaction fee from the node would be used to fund part of the production cost and the new segment.In turn, Trekk would act as an ambassador to Guap Coin. And it would be named as the official coin of the podcast.&nbsp; Guap Coin logo would be added to the podcast website and have dedicated promotion time during podcast.&nbsp;I appreciate the members of the foundation taking the time to hear my request. I look forward to hearing frofrom you and working on the further details.

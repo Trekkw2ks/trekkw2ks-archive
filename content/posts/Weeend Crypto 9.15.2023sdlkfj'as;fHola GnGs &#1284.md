@@ -1,0 +1,8 @@
+---
+title: "2b1tw07b34a6ec12a467db43e1d942cc152a7"
+date: 2023-01-01
+draft: false
+tags: ["zoho-import"]
+---
+
+Weeend Crypto 9.15.2023sdlkfj'as;fHola GnGs &#128406;&#127998;,&nbsp;I'm Trekkw2ks. If you're new to my segment #WeekendCrypto, thanks for taking the time to tap in. The basic idea is I cover events related to crypto that happen over the weekend, between Friday and Sunday. This isn't about price talk but giving context to events happening in the space. For the regular #warriors much thanks for continuing to watch the show.For those interested in following a story, here are the links:linkhttps://coinedition.com/crypto-regulator-peter-motor-resigns-nydfs-searches-for-the-next-chief/https://www.theblock.co/post/251178/nil-foundation-taceo-ethereumhttps://en.cryptonomist.ch/2023/09/15/paypal-pyusd-stablecoin-transparency-report/https://www.coinspeaker.com/bitwave-gilded-web3-payment/https://cointelegraph.com/news/magic-eden-integrates-solana-compressed-nfts-into-marketplaceSocial Media:Just put "Trekkw2ks" in any search engine. All my social comes up.And for  Metaverses: The Other Side check us on Twitter @BuildRDAO. Replays on Saturdays at 12ish.#Chainalysis #PYUSD #Bitwave #BitcoinMixer #FederalCase #Solana #NilFoundation #MagicEden #NFT CNFT #PayPal&nbsp; #Trekkw2ks #PoverBDay #ZeroKnowledge&nbsp;PLEASE LIKE, COMMENT AND SUBSCRIBE!!!**Remember, I'm just some bald headed guy on the internet. I'm not a CPA, Financial Advisor, or lawyer. None of what is said in this show should be taken as legal or financial advice, for entertainment purposes only. Always do your own due diligence.**

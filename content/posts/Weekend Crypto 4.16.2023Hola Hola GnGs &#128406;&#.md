@@ -1,0 +1,8 @@
+---
+title: "lrhp39355de483d874c50ab2e8238c785d906"
+date: 2023-01-01
+draft: false
+tags: ["zoho-import"]
+---
+
+Weekend Crypto 4.16.2023Hola Hola GnGs &#128406;&#127998;,I'm Trekkw2ks. If you're new to my segment #WeekendCrypto, thanks for taking the time to tap in. The basic idea is I cover crypto news that happens over the weekend, between Friday and Sunday. For the regular #warriors much thanks for continuing to watch the show.For those interested in following a story, here are the links:linkhttps://www.theblock.co/post/226433/uniswap-dao-v3-on-polygon-zkevmhttps://dailyhodl.com/2023/04/15/blockchain-association-shows-support-for-banned-tornado-cash-in-new-amicus-brief-filing/https://beincrypto.com/eth-staking-privacy-concerns-ip-addresses/https://dailyhodl.com/2023/04/15/arizona-governor-shuts-down-bill-favoring-crypto-mining-industry/https://u.today/cardanos-ada-game-changing-innovation-aiken-is-live-in-alpha-phasehttps://ambcrypto.com/heres-how-to-jailbreak-chatgpt-with-the-top-4-methods-3/Social Media:Just put "Trekkw2ks" in any search engine. All my social comes up.#FedNow #Bitcoin #Binance #BitcoinMining #SusiSwape #JamieDimon #hack #Trekkw2ksPLEASE LIKE, COMMENT AND SUBSCRIBE!!!**Remember, I'm just some bald headed guy on the internet. I'm not a CPA, Financial Advisor, or lawyer. None of what is said in this show should be taken as legal or financial advice, for entertainment purposes only. Always do your own due diligence.**

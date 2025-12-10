@@ -1,0 +1,8 @@
+---
+title: "t7wo17e205ed2481c434c86e1dea6d004e49f"
+date: 2023-01-01
+draft: false
+tags: ["zoho-import"]
+---
+
+BBS SummaryHola Hola GnGs &#128406;&#127998;,It's a new week and the 8th annual Black Blockchain Summit has come and gone. Hand claps to Sinclair and the team for continuing to build on the dream. Can't wait to see how year 10 looks and who shows up.Initial takeaways: the #BBS is definitely moving up the #valuechain for Howard university. Boosting the school name in the blockchain community.Here's how:1. The Summit was held at the main campus both days, right across the Yard in the Armour J. Blackburn University Center.2. Hester Peirce actually showed up in person. Granted the questions she answered gave no tea.3. More students entered the pitch competition. The message is spreading. Sorry, I forgot the name of the group who won.Beside that, it was great to see some of the old heads: Najah Roberts (hope you're feeling better), Katherine Johnson of Storj, Reggie Middleton of Smartmetal, Micheal abraha, and Cleve and Justin . Sorry, can't name everyone-characters limits.And great to make new connections: Adina Aaron (solar rabbit hole, here I come) , Lanu Hangi (let's talk about Gala Games) , Charisma Peoples, Ben Jealous (coffee soon?), and&nbsp;Temitayo Akinrefon (National Scoiety of Black Engineers conference, let's go!).PS: For all the naysayers and haters. WE STILL HERE! &#128170;&#127998; See y'll next year!#TrekkTalk #Trekk2ksLive #CryptoUnc #NoPriceTalk #SEC #HowardUniversity #SmartMetal #HowardUniversity #SolarFarming&nbsp;

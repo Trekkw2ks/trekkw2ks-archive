@@ -1,0 +1,8 @@
+---
+title: "c1u1r428a6d003b784cc59fefb656b8cea71d"
+date: 2023-01-01
+draft: false
+tags: ["zoho-import"]
+---
+
+Recap Of 2nd Twitter Hola Hola GnGs &#128406;&#127998;,On August 7, 2022 I co-hosted #TwitterSpace with cypher punk bro 3Douglas. This is a weekly series BTW. For those not aware, we hold a open hour long space exploring the question of what does #DigitalRealty mean in the #metaverse and in the coming #nocode wave of #web3?Now that you're caught up on the context, here is the recap.1️⃣ I have to find a way to get a copy of the space recording. The current Twitter set-up doesn't allow you to download the recording for yourself.2️⃣ The list of metaverse #OpenSource tools has been published to a website. Here is the link for those interested in no code tools &#128073;&#127998;&nbsp;link. This list curated by 3D n Marcus Russor. It's based on needing no KYC and no cost to use. I should add the list will change over time.3️⃣ #SnoopDog knows jack shyt of how to use any of the tech his names is connected to in the metaverse. Arguably nether does his team. Nonetheless, they do know how to hire those who do. And he has been a very effective marketing tool since connecting with #MarthaStewart.&nbsp;Well, that's the recap. For all you Snoop fans my DM is open.Before I forget, here's the link for our next &#127756; twitter.com/i/spaces/1djxXPrNAyBxZ. All are welcome.&nbsp;#Trekkw2ks #3D #ThinnkersnDoers #bloclchaintourist #P0verBLinkhttps://www.linkedin.com/posts/trekkw2ks_twitterspace-digitalrealty-metaverse-activity-6962747658260094976-e6wm?utm_source=linkedin_share&amp;utm_medium=android_app

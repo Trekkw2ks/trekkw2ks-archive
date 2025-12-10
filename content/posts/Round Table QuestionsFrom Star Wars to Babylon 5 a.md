@@ -1,0 +1,8 @@
+---
+title: "2k988f34c3d2f51684bc08dabd2c9c9ea6f5f"
+date: 2023-01-01
+draft: false
+tags: ["zoho-import"]
+---
+
+Round Table QuestionsFrom Star Wars to Babylon 5 and Mr Robot, we went from the make believe to the reality digital money existing in our life time. How accurate is that statement?True or false, The Silk Road being the example, shows folks doing questionable activities are usually the first to use innovative technology and set the trend for the rest of soceity?What sports leagues do you think will be the first to play player in crypto? A real one not company token?How long do you see it before we have wearable wallets? Not just implants like RFID chips. Fashion and tech combined?Does seeing n hearing about cryptos in pop culture like in music and on TV shows mean adoption is a gaurauntee?What separates cryptos from just being a trendy topic or buzzword ppl say for clout?How do we get more black people to understand what this opportunity can come from this new form of money?Is crypto culture separate from pop culture or a subcategory, why or why not?Which pop culture is more accepting of the ideals of cryptos west or east? Any examples?Around the world, the social contract between the people n their governments seem to be in flux. Is this a pro or con to the growing presence of cryptos in pop culture?&nbsp;Why does it even matter that we see cryptos getting mention I'm popculture?True or false? Pop culture is becoming more Woke with the growing mention of cryptos?What comic con will be the first to accept cryptos as payment?

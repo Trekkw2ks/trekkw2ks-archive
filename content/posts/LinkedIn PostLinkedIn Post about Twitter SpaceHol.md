@@ -1,0 +1,8 @@
+---
+title: "nzxfxad16d3af8de84f498cdfe2d79df75710"
+date: 2023-01-01
+draft: false
+tags: ["zoho-import"]
+---
+
+LinkedIn PostLinkedIn Post about Twitter Space:Hola Hola GnGs &#128406;&#127998;,It's been awhile and I'm back with a story to tell.This past Sunday, I hosted a #TwitterSpace with my #cypherpunk partner in crime 3Douglas. The topic was 'what is #DigitalRealty?'There are a few details I should add for background:1. hosting the spaces every Sunday @ 7PM is part of our marketing strategy.2. we're hosting a webinar on August 30, 2022 @ 6 PM.3. this is the 2nd interaction of the webinar with lessons learned last month.4 . the motivation for this is inpart being nerds who like open source tech but also needing money to pay bills.For just 1 hour it was most insightful convo. It was only 5 people besides us.#TLDR Recap:1. Digital Reality isn't limited to the digital land/plot based services.2. digital worlds consist of 3 axises, X,Y, n Z. Which means there are more opportunities to find monetization models.3. web2 technology has come to the point that you can spin up your own #metaverse without writing 1 line of code.4. 3D and Marcus&nbsp; (listener) will collab to make a list of public tools available. 5. the next wave for metaverses will be the white labeling of the software made available at the retail level.Registration for our Digital Realty webinar is on #EventBrite @ link.#trekkw2ks #web3 #P0verB #ThinkersnDoers #digitalcommunities&nbsp;Link: https://www.linkedin.com/posts/trekkw2ks_digital-realty-the-basics-activity-6960344032212377600-0VrP?utm_source=linkedin_share&amp;utm_medium=android_app

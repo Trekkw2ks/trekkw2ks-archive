@@ -1,0 +1,8 @@
+---
+title: "7daqtc248316779a14b1dbb358b74df591723"
+date: 2023-01-01
+draft: false
+tags: ["zoho-import"]
+---
+
+Wknd 7.15.22l$248M stablecoins flow out of Coinbase as community refutes exchange liquidity issueslinkAustralian Central Bank Governor Prefers Privately Issued Tokens Over CBDCshttps://beincrypto.com/australian-central-bank-governor-prefers-privately-issued-tokens-over-cbdcs/Circle Claims USDC Stablecoin Is Now Fully Backed by Cash, US Treasurieshttps://decrypt.co/105223/circle-usdc-fully-backed-cash-us-treasuriesADA, DOGE and SHIB Can Now Be Sent and Swapped at More Than 6,000 ATMs Through This Featurehttps://u.today/ada-doge-and-shib-can-now-be-sent-and-swapped-at-more-than-6000-atms-through-this-featureNFT Artist DeeKay&rsquo;s Twitter Hacked, Over $150K in NFTs Stolenhttps://cryptobriefing.com/nft-artist-deekays-twitter-hacked-over-150k-in-nfts-stolen/?utm_source=feed&amp;utm_medium=rssPutin signs law banning crypto-based payments in Russiahttps://cryptoslate.com/putin-signs-law-banning-crypto-based-payments-in-russia/New Robinhood Listing Spurs Gains for Ethereum-Based Decentralized Exchange Crypto Projecthttps://dailyhodl.com/2022/07/16/new-robinhood-listing-spurs-gains-for-ethereum-based-decentralized-exchange-crypto-project/Paraguay&rsquo;s new bill may turn the country into mining heavenhttps://cryptoslate.com/paraguays-new-bill-may-turn-country-into-mining-heaven/Yuga Labs Opens Otherside for &lsquo;First Trips&rsquo; in Bored Ape Metaversehttps://decrypt.co/105314/yuga-labs-opens-otherside-for-first-trips-in-bored-ape-metaverse

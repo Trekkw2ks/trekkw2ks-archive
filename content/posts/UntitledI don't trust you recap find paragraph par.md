@@ -1,0 +1,8 @@
+---
+title: "3ctvdad6259fa0519438485fac70a20c7b70d"
+date: 2023-01-01
+draft: false
+tags: ["zoho-import"]
+---
+
+UntitledI don't trust you recap find paragraph paragraph. Motorcycle bike to say first I would like to say thank you for allowing me to give my presentation had a flat start on what it would be about basic concept I do is say what I see play out in the cryptoverse and made first public sentiment memes serve as a real-time conveyance public sentiment in a comical tone the combination of the right copy an image can convey example for conflict idea of how the public perceives what is going on and or by the government big business or just hiding at the gym confirming this for me about the benefits of understanding or paying attention to me ego vs Google purchase of hippie witch giphy GIF of p h y and I imagine that the idea behind it was for the data analytics to do to be able to in real time by using a I better understand public sentiment and who sent it. So the basic idea in what I was presenting was that the owner contract which is the theory of is that people as individuals collectively give up certain rights that they have central government in order for seven benefits of a bowl so that is certain Protections in the government that work within their basket considering in the it looking at crypto burn and what the the event was that made I don't trust you rehab her graph send it first I would like to say a Publix into it real on Bay confirming this purchase of if that take a on the main set collector discover video of assertive benefits that is Rebecca send Inland keypad and in empty that show first 10 yearslink

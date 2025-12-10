@@ -1,0 +1,8 @@
+---
+title: "awqggf01ef1a9c753485e90ddd25c03b74542"
+date: 2023-01-01
+draft: false
+tags: ["zoho-import"]
+---
+
+1st LinkedIn PostHola Hola GnGs &#128406;&#127998;,Most folks hear the word #metaverse and think #ReadyPlayerOne (newbie cyberpunks might think #SnowCrash). For the most part people understand it as something #online. But even with the visual association of the Spielberg movie, people still don't know what it means to them right now.Or how long metaverses have been around.I imagine now you have questions. Well, that good. Here's a few more questions for you:1. Is digital real estate a real thing?2. Does a metaverse need a #blockchain?3. Can you monetize digital realty with out being a coder or trading?If you're interested in learning the answers to these questions and the ones you have.#TapIn to the webinar Digital Realty: The BasicsCreated by @__3D___  &amp; support by @Trekkw2ks.It's Wednesday July 20, 2022 @ 800PMSharing is caring. So please share with folks who would like to learn what all the hoopla is about. And maybe use what they learn to help themselves.#Terkkw2ks #web3 #eventbrite #PayAttenion #P0verB #ThinkersandDoers #KnowledgeAppliedIsPowerhttps://www.eventbrite.com/e/digital-realty-the-basics-tickets-369120688917PS: This whole space is a experiment and no profit can be guaranteed. At best you apply what you learn and have some success. At worst you understand enough of the basic about metaverses and don't feel lost in the sauce anymore, lol

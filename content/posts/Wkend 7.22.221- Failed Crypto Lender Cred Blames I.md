@@ -1,0 +1,8 @@
+---
+title: "ew8tl65acc31d6de24bafb0073dbb3d62a404"
+date: 2023-01-01
+draft: false
+tags: ["zoho-import"]
+---
+
+Wkend 7.22.221- Failed Crypto Lender Cred Blames Its Demise on Uphold Exchange in Suitlink2- Taiwan Set to Ban Crypto Purchases Using Credit Cards: Reporthttps://www.coindesk.com/policy/2022/07/22/taiwan-set-to-ban-crypto-purchases-using-credit-cards-report/3- Accounting Rules Make the Outcome of Tesla&rsquo;s Bitcoin Sale Unclearhttps://www.coindesk.com/business/2022/07/24/accounting-rules-make-the-outcome-of-teslas-bitcoin-sale-unclear/4- Latest in Crypto Hiring: Social Digital Asset Platform Nabs OK Group Exechttps://blockworks.co/latest-in-crypto-hiring-social-digital-asset-platform-nabs-ok-group-exec/5- Voyager rejects Alameda buyout offer as it 'harms customers'https://cointelegraph.com/news/voyager-rejects-alameda-buyout-offer-as-it-harms-customers6- The opportunities and risks of Metaverse for small businesseshttps://cointelegraph.com/news/the-opportunities-and-risks-of-metaverse-for-small-businesses7- Vitalik Buterin Funded AI Research Grant with Last Year&rsquo;s Shiba Inu Donationhttps://cryptopotato.com/vitalik-buterin-funded-ai-research-grant-with-last-years-shiba-inu-donation/8- California again allows crypto contributions to state, local political campaignshttps://cointelegraph.com/news/california-again-allows-crypto-contributions-to-state-local-political-campaigns9- Board urges Bank of Central African States to introduce common digital currency: Reporthttps://cointelegraph.com/news/board-urges-bank-of-central-african-states-to-introduce-common-digital-currency-report

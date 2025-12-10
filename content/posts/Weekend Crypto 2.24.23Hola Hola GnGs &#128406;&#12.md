@@ -1,0 +1,8 @@
+---
+title: "s8c8kc35703f162a24f809ed71e7b656e1174"
+date: 2023-01-01
+draft: false
+tags: ["zoho-import"]
+---
+
+Weekend Crypto 2.24.23Hola Hola GnGs &#128406;&#127998;,I'm Trekkw2ks. If you're new to my segment #WeekendCrypto, thanks for taking the time to tap in. The basic idea is I cover crypto news that happens over the weekend, between Friday and Sunday. For the regular #warriors much thanks for continuing to watch the show.For those interested in following up on the stories covered, below are the links.&nbsp;&nbsp;Stories and links:linkhttps://www.theblock.co/post/214974/ethereum-core-developers-plan-new-testnet-called-holli?utm_source=cryptopanic&amp;utm_medium=rsshttps://u.today/shiba-inu-shib-fans-buzzing-over-playstations-new-game-featuring-their-favorite-doghttps://www.cryptoglobe.com/latest/2023/02/xrp-ledger-developers-unveil-proposal-that-could-significantly-expand-its-use-cases/https://bitcoinist.com/crypto-accepted-by-60-of-ukraine-weapons-suppliers/https://www.theblock.co/post/215235/solana-network-back-online-following-second-restart?utm_source=cryptopanic&amp;utm_medium=rsshttps://cryptopotato.com/another-bitcoin-core-maintainer-steps-down-after-7-years/Social Media:Just put "Trekkw2ks" in any search engine. All my social comes up.#BitcoinCore #Solana #ShibaInu #XRP #EuropeanCommission #Playstation #Trekkw2ksPLEASE LIKE, COMMENT AND SUBSCRIBE!!!**Remember, I'm just some bald headed guy on the internet. I'm not a CPA, Financial Advisor, or lawyer. None of what is said in this show should be taken as legal or financial advice, for entertainment purposes only. Always do your own due diligence.**https://app.restream.io/new-event-invitation/emVNMk0zWMaO-fbzWUBagOKWwcBvYN0/email

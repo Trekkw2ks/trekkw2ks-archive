@@ -1,0 +1,8 @@
+---
+title: "2cxii936ddd9f52754203a9cb34ef4d7f5308"
+date: 2023-01-01
+draft: false
+tags: ["zoho-import"]
+---
+
+8--2019In A New Light RantI never had someone I knew IRL pass in the crypto space. It also never occurred to me that I could have a guest on that would transition after a interview.But this week both things happened with 1 person.&nbsp;Felty 256 was a good dude. I met in Philly more than a year ago now. We talked for months about him coming on the podcast. I can't tell you what he was like as a kid. But I can say he had my respect. He was usually 1 of the 1st ppl to like my twitts n make a comment. He was a Philly native with filled with opinions. He saw browser mining as a tool and created Vidyen to bring real crypto mass adoption to the PC gaming space.Felty had a notable presence in my crypto landscape. He was a geek with witty techie humor, making his meme game something to behold. I'll miss that.My point G&amp;Gs is for the podcast being someone's last recorded interview was never on my radar as something to think about. I wasn't his last interview. However, I see my conversations in a new light. Going forward I will have a greater respect for the folks who take the time to come on and share their story with me.Thank you all in advance and I look forward to our talks.&nbsp;If you're interested, you can listen to the interview at link#hiimtrekk #cryptolife #realtalk #wednesdayrant #death #condolences #podcasting #interview #inmomeoryof #SoMe

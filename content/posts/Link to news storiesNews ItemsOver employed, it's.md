@@ -1,0 +1,8 @@
+---
+title: "swplkf2b4f07302234fd79063baeb3a0f8e7f"
+date: 2023-01-01
+draft: false
+tags: ["zoho-import"]
+---
+
+Link to news storiesNews Items:Over employed, it's a thinglinkNew CDC guidelines for zombieshttps://www.washingtonpost.com/opinions/2022/08/16/cdc-updated-guidelines-zombies-satire/​Russian Robbers still mining equipmenthttps://bits.media/neizvestnye-razgrabili-krupnuyu-mayning-fermu-na-skladakh-pod-moskvoy/​https://www.coindesk.com/learn/are-dapps-the-future-of-the-creator-economy/https://bitcoinmagazine.com/business/robosats-private-bitcoin-exchangehttps://www.zerohedge.com/geopolitical/visualizing-global-decline-fertility-rateshttps://www.aljazeera.com/news/2022/7/6/opec-chief-mohammed-barkindo-dies-in-nigerian-capital-at-63https://www.wired.com/story/trustpid-digital-token-supercookie/Power company siezes control of thromostatshttps://ussanews.com/2022/09/01/power-company-seizes-control-of-thermostats-in-colorado-during-heatwave/https://www.thegatewaypundit.com/2022/06/743043/https://bitcoinist.com/crypto-thirsts-lawyers-regulatory-pressure-mounts/https://cointelegraph.com/news/why-decentralization-isn-t-the-ultimate-goal-of-web3https://www.forbes.com/sites/jasonbrett/2022/05/19/congress-has-introduced-50-digital-asset-bills-impacting-regulation-blockchain-and-cbdc-policy/?sh=22960bee4e3fTwitter:https://twitter.com/ChrisBlec/status/1544333890495647747https://twitter.com/i/events/1539990964370132998Youtube:https://www.youtube.com/watch?v=1Qhm1_n84soInfo Siteshttps://oilprice.com/Energy/Energy-General/https://www.zerohedge.com/

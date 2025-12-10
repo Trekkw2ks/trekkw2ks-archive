@@ -1,0 +1,8 @@
+---
+title: "2cbocccd2b787b6b145d592cb8cccd11b4f32"
+date: 2023-01-01
+draft: false
+tags: ["zoho-import"]
+---
+
+8-9-2019Today I had the opportunity to talk with Katherina, who comes from the word of #fintech. While the conversation was engaging and had a few good lol moments.&nbsp;In all honestly, it was mainly her asking me questions and needing clarity on some of my verbiage while rambling on.Which bring me to the point of this post. The blockchain/crypto space have a vernacular that borrows from the finance and tech industries. But also has terms and phrases unique to it. So, when talking to ppl from other sectors you have to make sure, your on the same page when it comes to the words you use.And if not, hopefully they aren't afraid to ask questions. I do it all the time. I tell ppl you have to work with me, I'm slow. Lol.Truth be told, I've made up terms and actively work to get them in the crypto lexicon.&nbsp;Case in point:-Forced hand (that was actually Nathan Hawk)-Organic contextual conversation&nbsp;-Second tier(ed) business soultionIf you want to know what they mean you could ask these ppl:You can also try listening to the podcast or just ask me, lol. &nbsp; ♡Podcast♡Trekken Cryptos 2 Connectlink ☆ futurist19.com ☆  BlockchAIn Futurist Conf  @Untraceable   ♧ HODLBrand.ca ♧  @HODLDBrand  &nbsp;  #hiimtrekk #semantics #goodconversation #networking #trekkencryptos #contentcreation #letstalk #fintech #understanding

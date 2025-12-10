@@ -1,0 +1,8 @@
+---
+title: "bhy44d22dfc237a484afbad7931e2cc53cf17"
+date: 2023-01-01
+draft: false
+tags: ["zoho-import"]
+---
+
+12-11-2021#TuesdayBrand: Regulators Influencing Brand Echo.Hola Hola GnGs &#128075;&#127998;,Today's vlog is based on a vlog by @Keir (link ). He talks about what #FinCen is doing to change (influence) the narrative of how people understand what private and 3rd party crypto wallets are.I thought is was a great example to show how regulators can influence #BrandEcho. First you have to understand that they are a part of the blockchain community, like it or not.But the real meet of the matter is regulators promote protected markets and throttle free markets.&nbsp;But what does this have to do with branding. Some companies will market being in compliance (if recommendation becomes policy) as a benefit. While others will use non-compliance in their value proposition.Most companies will make the mistake of projecting to the users a "either/or" narrative.&nbsp;So, why is this a mistake? Basically, it ignores the end-user's want/need.#Trekkw2Ks #PublicNarrative #ThinkersnDoers #PoverB-Tribalism is a feature not a bug.-Privacy will be the new battle ground for value proposition.-FINCEN is trying to make people think KYC is a natural part of crypto. For the record it's not.-FinCen is trying to influence the space by getting people to use their language to define things in the space.&nbsp;

@@ -1,0 +1,8 @@
+---
+title: "2cboc82f14620d85e4391ba9cf0b322e0641a"
+date: 2023-01-01
+draft: false
+tags: ["zoho-import"]
+---
+
+8-28-2019Wednesday Rant: The Goerge Carlin EffectHola Hola G&amp;Gs,Today's rant is brought to you by a concerned crypto citizen, me.I've been around long enough to see the popular narrative tranistions and remember cryptos was about P2P n not about &#128176;getting richer.2019 has not only been the year of cooperate stunting. It's also been a year of gov (US) sniping at blockchian/crypto companies.&nbsp;-25 yr old gets life for operating a exchange with AML back in 2015.-Reggie Middleton get a emergency SEC investigation. Already spent 1.2 mil in compliance changes-Kik still in court, not much more to say.-Ross Ulbrich case was a dog &amp; pony show.The point is the "community" isn't showing support companies that the gov goes after.&nbsp;-It's not about stopping scammers. (competitors) i-notice once you pay the legal loan shark fee everything is good to go.Remember none of this was real until the economic shift and realized they couldn't control directly.Much like the 1978 FFC v Pacifica Foundation (in which they hung GC out to dry); the results look similar. No support for the scapegoat. Resulting in the gov telling ppl what they can do w/public open resource (radio waves.) The SEC is doing the samething under the gauze of public protection. 1 by 1 opportunities being made available with public blockchains are being legal neutered.&nbsp;

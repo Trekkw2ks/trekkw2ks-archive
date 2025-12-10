@@ -1,0 +1,8 @@
+---
+title: "y85ada543de4ab1334ac585f1ddd2e2cd3d56"
+date: 2023-01-01
+draft: false
+tags: ["zoho-import"]
+---
+
+Weekend Crypto 07.14.23Hola GnGs &#128406;&#127998;,&nbsp;I'm Trekkw2ks. If you're new to my segment #WeekendCrypto, thanks for taking the time to tap in. The basic idea is I cover events related to crypto that happen over the weekend, between Friday and Sunday. This isn't about price talk but giving context to events happening in the space. For the regular #warriors much thanks for continuing to watch the show.For those interested in following a story, here are the links:&nbsp;linkhttps://en.bitcoinsistemi.com/just-in-after-binance-dismissal-allegations-ceo-cz-received-a-statement-fud/https://dailyhodl.com/2023/07/15/coinbase-and-binance-us-both-restore-support-for-xrp-after-judge-issues-critical-ruling-in-secs-ripple-lawsuit/https://en.bitcoinsistemi.com/money-laundering-gang-dismantled-with-cryptocurrency-in-hong-kong/Social Media:Just put "Trekkw2ks" in any search engine. All my social comes up.And for&nbsp; Metaverses: The Other Side check us on Twitter @BuildRDAO. Replays on Saturdays at 12ish.#SEC #XRP #Ripple #Coinbase #Binance #HongKong #Trekkw2ksPLEASE LIKE, COMMENT AND SUBSCRIBE!!!**Remember, I'm just some bald headed guy on the internet. I'm not a CPA, Financial Advisor, or lawyer. None of what is said in this show should be taken as legal or financial advice, for entertainment purposes only. Always do your own due diligence.**
