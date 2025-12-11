@@ -49,7 +49,7 @@ params:
 
     # HOMEPAGE PROFILE SECTION (Replaces the Professor)
     profileMode:
-          enabled: true
+          enabled: false
           title: Trekkw2ks Archive
           subtitle: "Welcome to the complete digital footprint of Trekkw2ks. Browse transcripts, blogs, and archives below."
           # imageUrl: "logo.png" 
