@@ -1,6 +1,6 @@
 ---
 title: "3fy4o83b9fefbcfba47c1ab867c04e28bcf77"
-date: 2020-06-00
+date: 2020-06-01
 draft: false
 tags: ["zoho-import"]
 ---
