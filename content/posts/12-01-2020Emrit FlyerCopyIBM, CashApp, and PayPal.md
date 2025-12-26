@@ -5,4 +5,4 @@ draft: false
 tags: ["zoho-import"]
 ---
 
-12-01-2020Emrit FlyerCopy:IBM, CashApp, and PayPal have joined in. The&nbsp;word is out, crypto is here to stay.But how do you get involved without a tone of money or knowing the technical stuff.Easy, become a Emrit Coolspot host.Help grow #ThePeoplesNetwork and get paid.
+12-01-2020Emrit FlyerCopy:IBM, CashApp, and PayPal have joined in. The&nbsp;word is out, crypto is here to stay.But how do you get involved without a tone of money or knowing the technical stuff.Easy, become a Emrit Coolspot host.Help grow ThePeoplesNetwork and get paid.
