@@ -1,8 +1,0 @@
----
-title: "zbferb4797dda71574512baa411e11035ebf9"
-date: 2023-01-01
-draft: false
-tags: ["zoho-import"]
----
-
-Panel QuestionsJitsi Link -&nbsp;Googly meetCrypto Mindest Rest Panel Sunday, November 6 &middot; 19:00 &ndash; 20:00Google Meet joining infoVideo call link: https://meet.google.com/qre-fvhy-rgeQuestionsIs crypto still following the same principles to bring financial inclusion to the masses? ( are they still relevant?)Is financial inclusion the same as economic and digital sovereignty?&nbsp;&nbsp;Is economic and digital sovereignty something that can be mass adopted?Is web 3 being designed and regulated to repeat the same situations of web2 via blockchain technology?Why is privacy such a bad word in web3?&nbsp;How do you see the space or the industry growing in 2023 thanks to newer regulations? (here and over seas)?What practical steps can be taken to influence how the space develops going forward? (biz dev, regs, and tech)&nbsp;&nbsp;Is mass adoption of blockchain technology actually meant to level the playing field?&nbsp;Does decentralization mean the same thing as censorship resistance?&nbsp;Who will benefit the most from the mass adoption of blockchain technology?&nbsp;Will the coming regulation help people gain economic sovereignty and the ability to practice digital and financial sovereignty or will it force people to give up their economic and digital sovereignty?&nbsp;Is mass adoption of blockchain technology a good thing?&nbsp;
