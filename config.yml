@@ -70,6 +70,9 @@ params:
 
     assets:
         disableScrollBarStyle: true
+        disableFingerprinting: true
+    customCSS:
+        - css/custom.css
     cover:
         hiddenInList: false
         hiddenInSingle: true
