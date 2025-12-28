@@ -83,7 +83,7 @@ params:
         hiddenInSingle: true
     label:
       text: "Trekkw2ks"
-      icon: CyberPunk_Me_20220828.jpg
+      icon: /CyberPunk_Me_20220828.jpg
       iconHeight: 18
 
 markup:
