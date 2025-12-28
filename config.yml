@@ -36,6 +36,11 @@ params:
     ShowCodeCopyButtons: true
     ShowAllPagesInArchive: true
     
+    assets:
+      disableScrollBarStyle: true
+      disableFingerprinting: true
+      customCSS:          # ← this tells PaperMod to load the file
+        - css/custom.css
     # CRITICAL FIX: This tells the homepage to look in your "posts" folder
     MainSections: ["posts"]
     
@@ -77,8 +82,8 @@ params:
         hiddenInList: false
         hiddenInSingle: true
     label:
-      text: "Trekkw2ks Archive"
-      icon: favicon.ico
+      text: "Trekkw2ks"
+      icon: CyberPunk_Me_20220828.jpg
       iconHeight: 18
 
 markup:
