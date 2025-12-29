@@ -36,11 +36,13 @@ params:
     ShowCodeCopyButtons: true
     ShowAllPagesInArchive: true
     
+    customCSS:          # ← this tells PaperMod to load the file
+        - css/custom.css
+    
     assets:
       disableScrollBarStyle: true
       disableFingerprinting: true
-      customCSS:          # ← this tells PaperMod to load the file
-        - css/custom.css
+      
     # CRITICAL FIX: This tells the homepage to look in your "posts" folder
     MainSections: ["posts"]
     
